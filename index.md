@@ -14,7 +14,7 @@ Bei Ratten und Mäusen hat man nachgewiesen, dass der Neuroparasit den Hormonhau
 - Frauen begehen häufiger Selbstmord.
 - Männer werden aggressiver, suchen eher das Risiko und haben einen gesteigerten Sexualtrieb.
 
-![1122](1123.jpg)
+![image](image.jpg)
 ### 2. Bandwürmer: Können auch das Gehirn befallen
 
 Ein Bandwurm kann über das Blut in alle Organe vordringen und dort bis zu 20 Jahre ausharren. Meist nisten sich die Würmer im Darm ein, aber auch das Gehirn ist vor einem Befall bestimmter Arten nicht sicher: In China etwa entfernte man einem Mann einen zehn Zentimeter langen Bandwurm aus dem Gehirn. Das Tier lebte noch. Der Träger war wegen epileptischer Anfälle ins Krankenhaus eingeliefert worden. Nach der Operation geht es ihm wieder gut. 
