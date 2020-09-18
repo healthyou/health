@@ -5,7 +5,7 @@ Neuroparasiten befallen das Nervensystem ihres Wirtes und können sogar sein Ver
 
 
 
-### 1. Toxoplasma gondii: Könnte Verhaltensveränderungen verursachen
+![toxa](TOXOPLASMA-GONDII.jpg)### 1. Toxoplasma gondii: Könnte Verhaltensveränderungen verursachen
 
 Toxoplasma gondii ist ein einzelliges Urtierchen, das Mäuse und Ratten befällt und sie ihre Angst vor Katzen verlieren lässt. Andere Angstreflexe bleiben erhalten. So kann die Katze die Maus fressen. Über Katzen wiederum kann der Parasit auf den Menschen übertragen werden. Rund ein Drittel der Weltbevölkerung ist mit dem Erreger infiziert, der sich in Zysten im Gehirn verstecken kann.
 Bei Ratten und Mäusen hat man nachgewiesen, dass der Neuroparasit den Hormonhaushalt beeinflusst. Ein Forscher der Karls-Universität in Prag nimmt zudem an, dass infizierte Personen ein verändertes Sexual- und Risikoverhalten haben:
